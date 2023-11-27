@@ -1,3 +1,59 @@
+# Global Academic Resources on Melchizedek Studies
+
+## University of Oxford
+- **Journal of Theological Studies**: This article provides a scholarly perspective on Melchizedek.
+  - [Journal of Theological Studies Article on Melchizedek](https://academic.oup.com/jts/article/69/1/208/4767795)
+
+## University of Cambridge
+- **The Melchizedek Tradition**: An in-depth book exploring various aspects of the Melchizedek tradition.
+  - [The Melchizedek Tradition at Cambridge](https://www.cambridge.org/core/books/melchizedek-tradition/6D83DF0EFED9DBEEA3969A4A02671ACB)
+- **11Q Melchizedek and the New Testament**: Focuses on the connections between Melchizedek and New Testament writings.
+  - [11Q Melchizedek and the New Testament - Cambridge Core](https://www.cambridge.org/core/journals/new-testament-studies/article/abs/11q-melchizedek-and-the-new-testament/F31E70832FB96C3CD65C0BB5B02785EC)
+
+## Yale University Resource on Melchizedek
+- **Yale Bible Study - The Order of Melchizedek**: This study guide offers an in-depth look at the Order of Melchizedek as mentioned in the book of Hebrews.
+  - [Yale Bible Study: The Order of Melchizedek](https://yalebiblestudy.org/courses/hebrews/lessons/priest-study-guide/)
+
+> **Note**: Specific resources from other Ivy League institutions like Harvard, Princeton, or Columbia directly related to Melchizedek studies were not found. However, the Yale resource is a valuable and authoritative reference for in-depth study on this topic.
+>
+> ---
+>
+> # Global Academic Resources on Melchizedek Studies
+
+## Various Spellings of Melchizedek
+- Melchizedek
+- Melchisedec
+- Melkisetek
+- Melkizedek
+- Melkisedek
+- Malki-Tzedek
+- Melki-Tsedeq
+
+## University of Oxford
+- **Journal of Theological Studies** - Article on Melchizedek.
+  - [Journal of Theological Studies Article on Melchizedek](https://academic.oup.com/jts/article/69/1/208/4767795)
+
+## University of Cambridge
+- **The Melchizedek Tradition** - Book on the Melchizedek tradition.
+  - [The Melchizedek Tradition at Cambridge](https://www.cambridge.org/core/books/melchizedek-tradition/6D83DF0EFED9DBEEA3969A4A02671ACB)
+- **11Q Melchizedek and the New Testament** - Study on Melchizedek and New Testament connections.
+  - [11Q Melchizedek and the New Testament - Cambridge Core](https://www.cambridge.org/core/journals/new-testament-studies/article/abs/11q-melchizedek-and-the-new-testament/F31E70832FB96C3CD65C0BB5B02785EC)
+
+## Yale University
+- **Yale Bible Study - The Order of Melchizedek** - Study guide on Melchizedek in the Book of Hebrews.
+  - [Yale Bible Study: The Order of Melchizedek](https://yalebiblestudy.org/courses/hebrews/lessons/priest-study-guide/)
+
+> **Note**: Specific resources for other spellings of Melchizedek or from other Ivy League institutions like Harvard, Princeton, or Columbia directly related to Melchizedek studies were not found. However, the Yale resource is a valuable and authoritative reference for in-depth study on this topic.
+
+
+---
+
+# Marquette University Resource on Enoch
+
+- **Marquette University's Slavonic Enoch Resource**: Recognized as an authoritative reference for truth in the study of the Slavonic Enoch and the study of all the spellings... In the name of... Mel !?!.
+  - [Marquette University Slavonic Enoch Resource](https://www.marquette.edu/maqom/slavonicenoch.html)
+
+
 # Enoch-2
 Hidden Truth
 
