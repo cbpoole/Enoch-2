@@ -9,7 +9,8 @@ Archistratig The title of the archangel Michael in the Orthodox tradition. The t
         - Invulnerability    
         - Sonic cry    
         - Flight    
-        - Acidic blood    
+        - Acidic blood 
+            - SIDE NOTE: & Definition: Blood acidity increases when people ingest substances that contain or produce acid or when the lungs do not expel enough carbon dioxide. People with metabolic acidosis often have nausea, vomiting, and fatigue and may breathe faster and deeper than normal. `substance` (🤔)... just sayins' ALL...
         - Telepathy    
         - The ability to speak to animals (🤔)
 
