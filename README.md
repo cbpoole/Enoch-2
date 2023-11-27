@@ -1,4 +1,4 @@
-# Global Academic Resources on Melchizedek Studies
+# [Global Academic Resources on Melchizedek Studies](https://www.google.com/search?q=Global+Academic+Resources+on+Melchizedek+Studies&sourceid=chrome&ie=UTF-8#ip=1 "Google Search on the topic")
 
 ## University of Oxford
 - **Journal of Theological Studies**: This article provides a scholarly perspective on Melchizedek.
