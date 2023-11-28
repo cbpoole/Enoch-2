@@ -1767,3 +1767,5 @@ And he went into the ark, a son of 600 years, and in the six hundred first year 
 And to him be glory, from the beginning and now
 
 and until the end of the whole era.           AMEN+
+
+[Google Search to land on Mel](https://www.google.com/search?q=what+is+my+downfall,+who+i+did+i+tell+this+too,+and+at+what+age,+so+when+in+the+fuck+did+Maker+and+His+Mark+choose+circle+back+and+deliver+the+exact+thing+that+is+my+death%3F%3F%3F "Holey Trickster")
